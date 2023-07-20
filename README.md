@@ -1,5 +1,5 @@
 ### Hi there 👋 I'm Tomer Burman.
-## I am currently in my second year of BSc in Software Engineering.
+## I am currently in my third year of BSc in Software Engineering.
 generally curious,
 You can reach me through : TomerBurman@gmail.com
 LinkedIn - Tomer Burman
